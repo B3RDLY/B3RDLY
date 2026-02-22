@@ -10,7 +10,9 @@
 ![Tumblr_l_549019220990928.jpg](https://github.com/user-attachments/assets/279df275-1e7e-4a78-ad32-46e9bc2983a6)
 
 >hello (*≧∀≦)! i go by xolar/xolaris, but feel free to call me berdly. Any/all pronouns are ok !!
-This github us linked to all my undertale / deltarune skins, my main is @xolariis where I have all my other fandoms!
 
+this github is linked to all my undertale + deltarune skins, my main is @xolariis where i have all my other fandoms!
+
+i really love berdly he's me and i am him. idm snowgrave jokes nor hate but please don't drag it on, it gets annoying.
 ![Untitled325_20260221180542.png](https://github.com/user-attachments/assets/a3a17d2f-e369-490e-a9db-46c956442dbf)
 ![Tumblr_l_513254687504154.gif](https://github.com/user-attachments/assets/1b3a3ca5-9d67-4bdd-8944-fa221022da2d) </div>
