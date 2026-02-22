@@ -31,8 +31,6 @@ thats all 《*≧∀≦》!!
 ![Tumblr_l_575160249563455.jpg](https://github.com/user-attachments/assets/7522643b-2157-4276-bff9-018f38948488)
 ![Tumblr_l_575164046270849.gif](https://github.com/user-attachments/assets/77b7e9a3-95f4-4357-9f8e-0af6e9ed2787)
 
-![Tumblr_l_575164046270849.gif](https://github.com/user-attachments/assets/77b7e9a3-95f4-4357-9f8e-0af6e9ed2787)
-
 
 ![berdly-deltarune.gif](https://github.com/user-attachments/assets/059112c8-1cea-4b04-82be-302ddd7a7297) </div>
 
