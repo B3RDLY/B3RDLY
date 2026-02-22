@@ -21,4 +21,5 @@ thats all 《*≧∀≦》!!
 
 ![Tumblr_l_513254687504154.gif](https://github.com/user-attachments/assets/1b3a3ca5-9d67-4bdd-8944-fa221022da2d)
 ![Untitled325_20260221180542.png](https://github.com/user-attachments/assets/a3a17d2f-e369-490e-a9db-46c956442dbf) </div>
+![Tumblr_l_514097263196801.gif](https://github.com/user-attachments/assets/adec652f-1b45-4390-b94a-bbaadc1f200c)
 
