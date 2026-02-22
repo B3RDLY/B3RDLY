@@ -8,11 +8,11 @@
 ```[data loaded!]```
 
 ![Tumblr_l_575010261432001.jpg](https://github.com/user-attachments/assets/c1390ef8-eb4c-4520-8e33-896c278c80b2)
-__
+
 hello (*≧∀≦)! i go by xolar/xolaris, but feel free to call me berdly. Any/all pronouns are ok, he is preferred!
-__
+
 this github is linked to all my undertale + deltarune skins, my main is @xolariis where i have all my other fandoms!
-__
+
 i really love berdly he's me and i am him. idm snowgrave jokes nor hate but please don't drag it on, it gets annoying.
 
 thats all 《*≧∀≦》!!
