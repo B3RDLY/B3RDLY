@@ -29,7 +29,6 @@ thats all 《*≧∀≦》!!
 ![Tumblr_l_513258840885090.gif](https://github.com/user-attachments/assets/e370ef8b-e249-451d-b37d-7c476e280171)
 ![Tumblr_l_513412294307427.jpg](https://github.com/user-attachments/assets/c57685f9-dd03-4e8b-8e58-a198e988cd42)
 ![Tumblr_l_575164046270849.gif](https://github.com/user-attachments/assets/289911c5-87b1-4e3e-be72-a29cf9c95c5d)
-![Tumblr_l_575164046270849.gif](https://github.com/user-attachments/assets/77b7e9a3-95f4-4357-9f8e-0af6e9ed2787)
 
 ![Tumblr_l_513828372266279.gif](https://github.com/user-attachments/assets/1f468675-919d-48ed-8187-7e363f000f18)
 ![Tumblr_l_513365889827705.gif](https://github.com/user-attachments/assets/b00b23aa-6130-4d73-984b-b80ad9449d42)
