@@ -33,7 +33,6 @@ thats all 《*≧∀≦》!!
 
 ![Tumblr_l_513828372266279.gif](https://github.com/user-attachments/assets/1f468675-919d-48ed-8187-7e363f000f18)
 ![Tumblr_l_513365889827705.gif](https://github.com/user-attachments/assets/b00b23aa-6130-4d73-984b-b80ad9449d42)
-
 ![Tumblr_l_575010261432001.jpg](https://github.com/user-attachments/assets/c1390ef8-eb4c-4520-8e33-896c278c80b2)
 ![Untitled323_20260221215335.png](https://github.com/user-attachments/assets/4019ca28-dd5f-4105-bacd-5a6835051cd6)
 ![Tumblr_l_549027843169310.jpg](https://github.com/user-attachments/assets/f782a98b-aa7d-4bf0-815b-552e2c441966)
