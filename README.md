@@ -34,5 +34,11 @@ thats all 《*≧∀≦》!!
 ![Tumblr_l_513828372266279.gif](https://github.com/user-attachments/assets/1f468675-919d-48ed-8187-7e363f000f18)
 ![Tumblr_l_513365889827705.gif](https://github.com/user-attachments/assets/b00b23aa-6130-4d73-984b-b80ad9449d42)
 
+![Tumblr_l_575010261432001.jpg](https://github.com/user-attachments/assets/c1390ef8-eb4c-4520-8e33-896c278c80b2)
+
+![Untitled323_20260221214923.png](https://github.com/user-attachments/assets/3d6477ae-bd26-41bb-acbc-f5c8c836e7e1)
+
+![Tumblr_l_549027843169310.jpg](https://github.com/user-attachments/assets/f782a98b-aa7d-4bf0-815b-552e2c441966)
+
 ![berdly-deltarune.gif](https://github.com/user-attachments/assets/059112c8-1cea-4b04-82be-302ddd7a7297) </div>
 
