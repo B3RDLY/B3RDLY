@@ -9,7 +9,7 @@
 
 ![Tumblr_l_549019220990928.jpg](https://github.com/user-attachments/assets/279df275-1e7e-4a78-ad32-46e9bc2983a6)
 
->hello (*≧∀≦)! i go by xolar/xolaris, but feel free to call me berdly. Any/all pronouns are ok !!
+hello (*≧∀≦)! i go by xolar/xolaris, but feel free to call me berdly. Any/all pronouns are ok !!
 
 this github is linked to all my undertale + deltarune skins, my main is @xolariis where i have all my other fandoms!
 
