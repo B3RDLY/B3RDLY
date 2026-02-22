@@ -23,3 +23,5 @@ thats all 《*≧∀≦》!!
 ![Untitled325_20260221180542.png](https://github.com/user-attachments/assets/a3a17d2f-e369-490e-a9db-46c956442dbf)
 ![Tumblr_l_514097263196801.gif](https://github.com/user-attachments/assets/adec652f-1b45-4390-b94a-bbaadc1f200c)</div>
 
+![berdly-deltarune.gif](https://github.com/user-attachments/assets/059112c8-1cea-4b04-82be-302ddd7a7297)
+
