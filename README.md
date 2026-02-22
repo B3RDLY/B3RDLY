@@ -23,6 +23,8 @@ thats all 《*≧∀≦》!!
 ![Untitled325_20260221180542.png](https://github.com/user-attachments/assets/a3a17d2f-e369-490e-a9db-46c956442dbf)
 ![Tumblr_l_514097263196801.gif](https://github.com/user-attachments/assets/adec652f-1b45-4390-b94a-bbaadc1f200c)
 
+![Untitled323_20260221214923.png](https://github.com/user-attachments/assets/343ecdef-556e-4cb8-bda1-a135fad7146b)
+
 ![Tumblr_l_549027843169310.jpg](https://github.com/user-attachments/assets/f782a98b-aa7d-4bf0-815b-552e2c441966)
 
 ![berdly-deltarune.gif](https://github.com/user-attachments/assets/059112c8-1cea-4b04-82be-302ddd7a7297) </div>
