@@ -11,7 +11,7 @@
 
 hello (*≧∀≦)! i go by xolar/xolaris, but feel free to call me berdly. Any/all pronouns are ok, he is preferred!
 
-this github is linked to all my undertale + deltarune skins, my main is @xolariis where i have all my other fandoms!
+this github is linked to all my undertale + deltarune skins, my main is @xolariis where i have all my other fandoms included
 
 i really love berdly he's me and i am him. idm snowgrave jokes nor hate but please don't drag it on, it gets annoying.
 
