@@ -2,3 +2,10 @@
 
 ![Untitled403_20260627235236.png](https://github.com/user-attachments/assets/d72f0540-4a4d-465a-866b-d9dd7143ab28)
 ---
+
+<details>
+  <summary> berdly</summary>
+  
+  > hello !! I'm a very heavy berdly kin, doubles please iwc and yumes dni 
+>
+</details>
