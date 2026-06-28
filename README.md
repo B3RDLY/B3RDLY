@@ -11,7 +11,8 @@
   > hello !! I'm a very heavy berdly kin, doubles please iwc and yumes dni 
 ---
   > please avoid making negative jokes about him around me, it feels personal. (most of the time I won't mind.) 
-</details>
 ---
   >He is a character I strongly relate to and connect myself with, I can get defensive over him. (working on it)
+</details>
+
 </div>
