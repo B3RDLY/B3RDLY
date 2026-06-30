@@ -15,6 +15,8 @@
   > He is a character I strongly relate to and connect myself with, I can get defensive over him. (working on it)
 ---
   > Please realize I'm an actual person and have my own personality, I will not act like berdly in every aspect. 
+---
+  > if u see me with friends and they're berdly just know I forced them to make him (I'm the og haha)
 </details> 
 
 </div>
