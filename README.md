@@ -10,7 +10,7 @@
   
   > hello !! I'm a very heavy berdly kin, doubles please iwc and yumes dni 
 ---
-  > please avoid making negative jokes about him around me, it feels personal. (most of the time I won't mind.) 
+  > please avoid making negative jokes about him around me, it feels personal. (most of the time I dont care but sometimes I do get bothered by it.) 
 ---
   > if you dislike him and try role-playing with me just know I will hide you. I dont have time to deal with threats and annoyance just because u hate a fictional character.
 ___
@@ -18,7 +18,7 @@ ___
 ---
   > Please realize I'm an actual person and have my own personality, I will not act like berdly in every aspect. 
 ---
-  > if u see me with friends and they're berdly just know I forced them to make him (I'm the og haha)
+  > if u see me with friends and they're berdly just know I forced them to make him (I'm the og yo)
 </details> 
 
 </div>
