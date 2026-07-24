@@ -23,14 +23,5 @@ ___
 
 </div>
 
-![![Untitled325_20260221180542.png](https://github.com/user-attachments/assets/a3a17d2f-e369-490e-a9db-46c956442dbf)](https://xolaris.straw.page/)
-
-<!--
-Source - https://stackoverflow.com/q/61071158
-Posted by Rafael Borja, modified by community. See post 'Timeline' for change history
-Retrieved 2026-07-23, License - CC BY-SA 4.0
--->
-
-<a href="https://stackoverflow.com/"><img src="RELATIVE_PATH_TO_IMAGE"></img></a>
 
 
