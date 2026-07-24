@@ -25,3 +25,12 @@ ___
 
 ![Tumblr_l_163597674601704.gif](https://github.com/user-attachments/assets/87764783-8168-4432-a3fb-4d3dc3729d49)
 
+<!--
+Source - https://stackoverflow.com/q/61071158
+Posted by Rafael Borja, modified by community. See post 'Timeline' for change history
+Retrieved 2026-07-23, License - CC BY-SA 4.0
+-->
+
+<a href="https://stackoverflow.com/"><img src="RELATIVE_PATH_TO_IMAGE"></img></a>
+
+
