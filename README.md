@@ -27,4 +27,4 @@ ___
 ![Tumblr_l_163597674601704.gif](https://github.com/user-attachments/assets/87764783-8168-4432-a3fb-4d3dc3729d49)
 
 
-[![Alt Text](https://pin.it/4M2JHRS3H)](destination_url)
+[![straw](https://pin.it/4M2JHRS3H)](https://xolaris.straw.page/)
