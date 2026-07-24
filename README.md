@@ -23,7 +23,7 @@ ___
 
 </div>
 
-![Tumblr_l_163597674601704.gif](https://github.com/user-attachments/assets/87764783-8168-4432-a3fb-4d3dc3729d49)
+![![Untitled325_20260221180542.png](https://github.com/user-attachments/assets/a3a17d2f-e369-490e-a9db-46c956442dbf)](https://github.com/user-attachments/assets/87764783-8168-4432-a3fb-4d3dc3729d49)
 
 <!--
 Source - https://stackoverflow.com/q/61071158
