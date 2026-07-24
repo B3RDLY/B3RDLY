@@ -28,9 +28,8 @@ ___
 
 
 
-[<img alt="alt_text" width="40px" src="images/image.PNG" />](https://www.google.com/)
+[<img alt="straw" width="40px" src="images/image.PNG" />](https://xolaris.straw.page/)
 
 
-[<img alt="alt_text" width="40px" src="images/image.PNG" />](https://www.google.com/)
 
 
