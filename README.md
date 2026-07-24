@@ -28,9 +28,7 @@ ___
 
 
 
-[<img alt="straw" width="40px" src="![154d00068c02aa8953f578bdeef78a41.jpg](https://github.com/user-attachments/assets/a89f11bf-fe01-4ad8-88cf-6f30f4b821ba)
-" />](https://xolaris.straw.page/)
-
+[<img src="img/myImage.png">](https://xolaris.straw.page/)
 
 
 
