@@ -27,8 +27,6 @@ ___
 ![Tumblr_l_163597674601704.gif](https://github.com/user-attachments/assets/87764783-8168-4432-a3fb-4d3dc3729d49)
 
 
-
-[<img src="![Tumblr_l_163597674601704.gif]">](https://xolaris.straw.page/)
-
+
 
 
