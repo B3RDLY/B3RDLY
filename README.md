@@ -7,7 +7,7 @@
 <details>
   <summary> plᥱasᥱ rᥱad</summary>
   
-  > hello !! I'm a very heavy berdly kin, doubles please iwc and yumes dni 
+  > hello !! I'm a very heavy berdly kin, doubles ans yumes please iwc 
 ---
   > please avoid making negative jokes about him around me, it feels personal. (most of the time I dont care but sometimes I do get bothered by it.) 
 ---
@@ -18,6 +18,8 @@ ___
   > Please realize I'm an actual person and have my own personality, I will not act like berdly in every aspect. 
 ---
   > if u see me with friends and they're berdly just know I forced them to make him (I'm the og yo)
+___
+  > can also be found on my strawpage
 </details> 
 
 </div>
