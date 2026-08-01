@@ -5,7 +5,7 @@
 ---
 
 <details>
-  <summary> berdly</summary>
+  <summary> plᥱasᥱ rᥱad</summary>
   
   > hello !! I'm a very heavy berdly kin, doubles please iwc and yumes dni 
 ---
