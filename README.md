@@ -23,7 +23,7 @@ ___
 </details> 
 
 ___
-[@title-town](https://github.com/title-town)
+[@title-town](https://github.com/title-town)[@pt-fashion](https://github.com/pt-fashion)[pt-of-awesomeness](https://github.com/pt-of-awesomeness)
 
 
 
