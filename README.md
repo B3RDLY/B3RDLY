@@ -26,7 +26,7 @@ ___
 </details> 
 
 ___
-[@title-town](https://github.com/title-town)　 [@pt-fashion](https://github.com/pt-fashion)　 [pt-of-awesomeness](https://github.com/pt-of-awesomeness)
+[@title-town](https://github.com/title-town)　 [@pt-fashion](https://github.com/pt-fashion)　 [pt-of-awesomeness](https://github.com/pt-of-awesomeness) 　[@fans-town](https://github.com/fans-town)
 
 ___ 
 
