@@ -21,8 +21,7 @@ ___
 ___
   > all info can also be found on my strawpage
 </details> 
-
----
+___
 
 
 
