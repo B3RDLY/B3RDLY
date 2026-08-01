@@ -1,8 +1,7 @@
 <div align ="center">
 
-![Untitled325_20260221180542.png](https://github.com/user-attachments/assets/a3a17d2f-e369-490e-a9db-46c956442dbf)
+![Untitled423_20260801015309.png](https://github.com/user-attachments/assets/ebe0572c-66dc-4817-ad67-c166211d51d2)
 
-![Untitled403_20260627235236.png](https://github.com/user-attachments/assets/d72f0540-4a4d-465a-866b-d9dd7143ab28)
 ---
 
 <details>
@@ -23,8 +22,6 @@ ___
 
 </div>
 
-
-![Tumblr_l_163597674601704.gif](https://github.com/user-attachments/assets/87764783-8168-4432-a3fb-4d3dc3729d49)
 
 
 
