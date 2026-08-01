@@ -22,7 +22,7 @@ ___
   > all info can also be found on my strawpage
 </details> 
 
-</div>
+---
 
 
 
