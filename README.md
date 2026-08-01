@@ -19,7 +19,7 @@ ___
 ---
   > if u see me with friends and they're berdly just know I forced them to make him (I'm the og yo)
 ___
-  > can also be found on my strawpage
+  > all info can also be found on my strawpage
 </details> 
 
 </div>
