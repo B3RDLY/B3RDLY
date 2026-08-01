@@ -1,5 +1,5 @@
 <div align ="center">
-<b> P᥆nyt᥆wns bᥱrdlᥡ </b>
+<b> ⍴᥆nyt᥆wns bᥱrdlᥡ </b>
 
 ___
 
