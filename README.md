@@ -28,6 +28,4 @@ ___
 ___
 [@title-town](https://github.com/title-town)　 [@pt-fashion](https://github.com/pt-fashion)　 [pt-of-awesomeness](https://github.com/pt-of-awesomeness)
 
-![Untitled422_20260801023629.png](https://github.com/user-attachments/assets/f558f58b-e937-45eb-adea-99aeebad3d6c)
-
 
