@@ -26,7 +26,7 @@ ___
 </details> 
 
 ___
-[@title-town](https://github.com/title-town) - original "character" list !
+[@title-town](https://github.com/title-town) - the original character idea :)
 
 [@pt-fashion](https://github.com/pt-fashion)　 [pt-of-awesomeness](https://github.com/pt-of-awesomeness) 　[@fans-town](https://github.com/fans-town) 　[@pt-nominations](https://github.com/pt-nominations) 　[@pt-medals](https://github.com/pt-medals)
 
