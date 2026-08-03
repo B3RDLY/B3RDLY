@@ -34,5 +34,7 @@ ___
 
 ![Untitled422_20260801023629.png](https://github.com/user-attachments/assets/f558f58b-e937-45eb-adea-99aeebad3d6c)
 
+I don't appreciate people taking inspo from my gh or from my skins.
+
 
 
